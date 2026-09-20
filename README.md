@@ -25,6 +25,6 @@ CHO TRẺ 5-6 TUỔI Ở CÁC TRƯỜNG MẦM NON TƯ THỤC PHƯỜNG TÂN HƯN
 3. ** Ten bai bao / Tai lieu 3:** ỨNG DỤNG CÔNG NGHỆ SỐ TRONG DẠY HỌC MÔN KHOA HỌC
 NHẰM PHÁT TRIỂN KỸ NĂNG LÃNH ĐẠO VÀ QUẢN LÝ NHÓM CHO HỌC SINH TIỂU HỌC
 - Tac gia : Nguyễn Thành Luân
-- Nam xuat ban : 
+- Nam xuat ban : 2026
 - Nguon / Tap chi : [ ỨNG DỤNG CÔNG NGHỆ SỐ TRONG DẠY HỌC MÔN KHOA HỌC
 NHẰM PHÁT TRIỂN KỸ NĂNG LÃNH ĐẠO VÀ QUẢN LÝ NHÓM CHO HỌC SINH TIỂU HỌC / Link:https://tamlygiaoduc.com.vn/wp-content/uploads/2026/05/2.NGUYEN-THANH-LUAN.pdf ]
